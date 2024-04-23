@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mistermiggens
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning precalculus <3
+- 💞️ I’m looking to collaborate on AYO?
+- 📫 How to reach me jameswaltuhkirsch@gmail.com
+- 😄 Pronouns: IM A MAN, BOI
+- ⚡ Fun fact: idk im dumb
